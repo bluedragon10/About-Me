@@ -1,5 +1,5 @@
 About Me
 
-Spencer Curtis
+Sebas
 
-Favorite Color: Blue
+Favorite Color: Bluee
